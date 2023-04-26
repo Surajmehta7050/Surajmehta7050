@@ -1,6 +1,4 @@
-- 👋 Hi, I’m @Surajmehta7050
-- 👀 I’m interested in developing new products
-
+Hi, I am Suraj Mehta! Thanks for checking out this page! 👋
 
 
 
